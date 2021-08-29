@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **dasbijoy9804417767@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1S2U5vWl41VLDiTeWjO2sZaVMyAZaiHYh/view?usp=sharing](resume)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1S2U5vWl41VLDiTeWjO2sZaVMyAZaiHYh/view?usp=sharing](https://bit.ly/2UWyf1P)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
